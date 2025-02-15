@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @IGhottem2(S.Koenig)
-- 👀 I’m interested in software development  
-- 🌱 I’m currently learning everything or trying too
-- 💞️ I’m looking to create financial wealth and success for myself using technology (need job)
+- 👀 I’m interested Building my Success & Brand  
+- 🌱 I’m currently learning but need to be earning
+- 💞️ I’m looking to create financial wealth and a platform that will help share and give it back
 - 📫 How to reach me email .. ighottem@gmail.com
 - 😄 Pronouns:She ...
 - ⚡ Fun fact: no clue what im doing please feel free to coach me to great success in achieving my goals making my visions reality..
